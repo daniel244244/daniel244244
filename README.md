@@ -7,6 +7,7 @@
 - moro no sitio
 - trabalho em uma oficina de motos
 - @ do instagram @daniel_melo_de_jeus
+-  @ escola daniel.melo.jesus@escola.pr.gov.br
   🐴 🏍️
 
   ![](https://media1.tenor.com/m/qK4QAYwRulIAAAAC/biker-blitz.gif)
