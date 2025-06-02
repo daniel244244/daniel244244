@@ -1,7 +1,7 @@
 ## Bom dia 
 -Meu nome é Daniel sou estudante do alura
--tenho 15 anos
--estou solteiro no momento
+- tenho 15 anos
+- estou solteiro no momento
 - gosto de andar a cavalo
 - gosto de moto
 - moro no sitio
